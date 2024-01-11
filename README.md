@@ -1,0 +1,1 @@
+This folder contains both my academic CV (a full recounting of all jobs, presentations, papers, and so on) and a 2-pager with a summary of most of the key work I've been involved in over the last few years.
